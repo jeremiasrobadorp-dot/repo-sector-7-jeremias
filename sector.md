@@ -1,0 +1,1 @@
+la idea qentengo es de un robot que lo hakean 
